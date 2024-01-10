@@ -1,1 +1,1 @@
-Images related code
+Wallpapers related code
